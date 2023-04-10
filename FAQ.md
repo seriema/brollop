@@ -81,4 +81,4 @@ Brazil is home to many beautiful beaches, historic cities, and natural wonders. 
 ## More
 
 * [About the wedding](README.md)
-* [About Boipeba](about-boipeba.md)
+* [About Boipeba](about_boipeba.md)
