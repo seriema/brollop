@@ -36,7 +36,7 @@ We'll have a more detailed schedule of events soon, but the wedding will be on S
 
 ## Registry
 
-As we look forward to our future together, we would like to spend more time with each other in a happier environment, with fewer possessions. While we appreciate any gesture of generosity, we kindly request that you consider giving the gift of your presence instead of a physical gift. However, if you feel inclined to give, we would be grateful for a contribution to our honeymoon or a charity that is close to your heart. Above all, we value your presence at our wedding more than anything else.
+As we look forward to our future together, we would like to spend more time with each other in a happier environment, with fewer possessions. While we appreciate any gesture of generosity, we kindly request that you consider giving the gift of your presence instead of a physical gift. However, if you feel inclined to give, we would be grateful for a contribution to our honeymoon on [this PayPal link](https://paypal.me/jpjohansson) or a charity that is close to your heart. Above all, we value your presence at our wedding more than anything else.
 
 ## RSVP
 
