@@ -52,5 +52,5 @@ You probably already have contact details for us, but you can always reach JP by
 
 ## More
 
-* [About Boipeba](about.md)
+* [About Boipeba](about-boipeba.md)
 * [Questions about travelling to Brazil](FAQ.md)
