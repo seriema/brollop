@@ -22,11 +22,11 @@ Alice and JP met in Brazil in 2005 and after years of staying in touch, we decid
 
 The best way to get to Boipeba is to fly to Salvador. We'll provide transport from the airport on Friday, October 25th, 2024. If you're travelling from Sweden, you don't need a visa, but check with your embassy if you're travelling from another country. We can provide more details and guide you.
 
-<iframe src="https://www.google.com/maps/embed?pb=!1m14!1m8!1m3!1d14842.75796451245!2d-38.932987384346916!3d-13.586292010823989!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x73e61b88b1de1a5%3A0x5b5b68da70db5e03!2sPraia%20Boca%20da%20Barra!5e1!3m2!1sen!2sse!4v1681123068505!5m2!1sen!2sse" width="400" height="300" style="border:0;" allowfullscreen="" loading="lazy" referrerpolicy="no-referrer-when-downgrade"></iframe>
-
 ## Accommodation
 
 Stay near the beaches of Velha Boipeba, on the north side. Around the beach [Boca da Barra](https://goo.gl/maps/tJuJ45CgrtzN98vB7) is good.
+
+<iframe src="https://www.google.com/maps/embed?pb=!1m14!1m8!1m3!1d14842.75796451245!2d-38.932987384346916!3d-13.586292010823989!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x73e61b88b1de1a5%3A0x5b5b68da70db5e03!2sPraia%20Boca%20da%20Barra!5e1!3m2!1sen!2sse!4v1681123068505!5m2!1sen!2sse" width="380" height="300" style="border:0;" allowfullscreen="" loading="lazy" referrerpolicy="no-referrer-when-downgrade"></iframe>
 
 If you like "pousada" style there's [Pousada Pouso da Maré](https://goo.gl/maps/N3p6NQ7C7sP2BiC56) and [Pousada Marina de Boipeba](https://goo.gl/maps/h3ou3yWtppK3FgUU8) that we liked. The second is perfect if you plan to go kayaking or surfing. For an apartment with kitchen there's [Pousada Vila da Barra Boipeba](https://goo.gl/maps/hgGJsdCp73HNeRp56), and if you really want to live it up there's cozy houses at the top of the mountain, with an elevator, at [Pousada Mangabeiras](https://goo.gl/maps/Bh4mY6bEr8FXrpqA9).
 
