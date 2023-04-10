@@ -20,22 +20,6 @@ Like any country, there are certain precautions that travelers should take in Br
 
 The local currency in Brazil is the Brazilian real (BRL). You can exchange money at banks or currency exchange offices. Most establishments also accept major credit cards.
 
-## Accommodation
-
-![Alice having breakfast in a bungalou surrounded by nature and with the beach visible in the background](accomodation.jpg)
-
-### Where should I stay on the island?
-
-We recommend staying near the beach of Velha Boipeba. Some recommended accommodations include Pousada Pouso da Maré, Pousada Marina de Boipeba, Pousada Mangabeiras, and Pousada Vila da Barra Boipeba.
-
-### What are the accommodation options and their price ranges?
-
-There are a variety of accommodations available on the island, including hotels, hostels, and vacation rentals. Prices range from budget-friendly to luxury. Check websites such as Booking.com or Airbnb for options.
-
-### What amenities are available in the hotels/hostels?
-
-Amenities vary by location, but many accommodations offer breakfast, Wi-Fi, and air conditioning.
-
 ## Climate
 
 ![Alice, Vinicius, and our dog Choco, on the beach with lovely weather](climate.jpg)
