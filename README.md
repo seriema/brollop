@@ -47,3 +47,10 @@ Everyone in your family, including pets, are welcome at our wedding!
 ## Contact Information
 
 You probably already have contact details for us, but you can always reach JP by email at seriema@gmail.com. Feel free to reach out with any questions or concerns you may have!
+
+---
+
+## More
+
+* [About Boipeba](about.md)
+* [Questions about travelling to Brazil](FAQ.md)
