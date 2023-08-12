@@ -8,10 +8,6 @@
 
 Visitors from Sweden and the USA do not need a visa for tourism purposes in Brazil. However, if you are coming from Vietnam, you may need to apply for a visa before your trip. Check with your embassy for more information.
 
-### What is the best way to get to Boipeba Island?
-
-The best way to get to Boipeba Island is to fly to Salvador, and then take a combination of bus and boat to the island. We will also be providing transportation from the Salvador airport on the 25th of October, 2024.
-
 ### Is it safe to travel in Brazil?
 
 Like any country, there are certain precautions that travelers should take in Brazil. We recommend that you stay in well-lit areas, avoid carrying large sums of cash, and always be aware of your surroundings. Check with your embassy for the latest travel advisories.
@@ -26,11 +22,11 @@ The local currency in Brazil is the Brazilian real (BRL). You can exchange money
 
 ### What is the weather like in Brazil during October?
 
-October is the start of the Brazilian spring, and temperatures are typically warm with occasional rain showers. The average temperature in Boipeba Island during this time is around 27°C (81°F).
+October is the start of the Brazilian spring, and temperatures are typically warm with occasional rain showers.
 
 ### What should I pack for my trip?
 
-We recommend packing comfortable clothing suitable for warm weather, sunscreen, insect repellent, and comfortable walking shoes.
+We recommend packing comfortable clothing suitable for warm weather, sunscreen, bathing clothes, and comfortable walking shoes.
 
 ## Language
 
@@ -65,4 +61,4 @@ Brazil is home to many beautiful beaches, historic cities, and natural wonders. 
 ## More
 
 * [About the wedding](README.md)
-* [About Boipeba](about_boipeba.md)
+
