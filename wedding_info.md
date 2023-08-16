@@ -2,7 +2,7 @@
 
 ## Save the Date
 
-Join us on a beach in São Paulo, Brazil, in late October 2024 for our wedding celebration!
+Join us on a beach in São Paulo, Brazil, on the weekend of 25th to 27th of October 2024 for our wedding celebration!
 
 ## About Us
 
