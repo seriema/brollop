@@ -60,5 +60,5 @@ Brazil is home to many beautiful beaches, historic cities, and natural wonders. 
 
 ## More
 
-* [About the wedding](README.md)
-
+* [Welcome page](README.md)
+* [Wedding info](wedding_info.md)
