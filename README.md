@@ -6,6 +6,10 @@ Alice 💞 JP Wedding
 
 ### [Click here to RSVP! 💌](https://forms.gle/HqnM64rmcV532sTJ6)
 
+![Alice showing off her engagement ring made of coconut fibers](getting-engaged.jpg)
+
+## [Click here to RSVP! 💌](https://forms.gle/HqnM64rmcV532sTJ6)
+
 It's time to plan your vacations!
 
 * **What?** Alice and JP are getting married! The wedding will be in Brazil.
@@ -15,10 +19,6 @@ It's time to plan your vacations!
 * **How?** RSVP as soon as you can: [click here](https://forms.gle/HqnM64rmcV532sTJ6)
 
 ### [Click here to RSVP! 💌](https://forms.gle/HqnM64rmcV532sTJ6)
-
-![Alice showing off her engagement ring made of coconut fibers](getting-engaged.jpg)
-
-## [Click here to RSVP! 💌](https://forms.gle/HqnM64rmcV532sTJ6)
 
 ## More
 
